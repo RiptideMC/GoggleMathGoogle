@@ -1,8 +1,8 @@
 # GoggleMathGoogle
 GoggleMathGoogle
-https://google.com
-Try out https://shrikalyanika.org/injex.html. 
+_____________________________________________________________________________________________________________________________
+THE LINKS BELOW ARE ALL FOR ENVIS1ON EXPLOIT DEVELOPED BY CHATPL4Y STUDIOS AND RIPTIDEMC.
+_____________________________________________________________________________________________________________________________
+https://google.com (PRXY)
 Additionally, try https://poki.com and https://silvergames.com for games.
-Maybe https://roblox.com might work? TESTED FOR DURHAM CISD CHROMEBOOKS, THIS LINK DOES NOT WORK.
-Try https://search.brave.com/.
-BRAVE ALSO DOES NOT WORK FOR DURHAM CISD CHROMEBOOKS.
+For another PRXY, try using https://www.privacywall.org/ as the link.
