@@ -1,6 +1,9 @@
 # GoggleMathGoogle
 🔴D̷̷N🔴
 _____________________________________________________________________________________________________________________________
+ANOUNCEMENT OF THE DAY:
+🔴HI VEER!🔴
+_____________________________________________________________________________________________________________________________
 GoggleMathGoogle
 _____________________________________________________________________________________________________________________________
 THE LINKS BELOW ARE ALL FOR ENVIS1ON EXPLOIT DEVELOPED BY CHATPL4Y STUDIOS AND RIPTIDEMC.
@@ -12,6 +15,4 @@ ________________________________________________________________________________
 For coding (Linux in browser), type the link "https://www.onworks.net/runos/create-os.html?os=ubuntu-16.04.6-desktop-i386&home=init" in "https://privacywall.org" and click the first link. This link can run any application and even download games that Chromebooks cannot normally access.
 _____________________________________________________________________________________________________________________________
 This one runs Windows 10: "https://www.onworks.net/runos/create-os.html?os=win10_emulator&home=init". Please click the link and then follow all the prompts. This link can do the same things as the other link.
-_____________________________________________________________________________________________________________________________
-ANOUNCEMENT OF THE DAY:
-🔴HI VEER!🔴
+
