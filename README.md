@@ -1,7 +1,7 @@
 # GoggleMathGoogle
-🔴 $${\color{blue}A \space \color{darkred}CHATPL4Y \space \color{purple}product}$$ - made by D̷̷N 🔴
+🔴 $${\color{blue}A \space \color{darkred}CHATPL4Y \space \color{purple}product}$$ - made by ɌɨᵽŧɨđɇMȻ 🔴
 _____________________________________________________________________________________________________________________________
-🔴ANOUNCEMENT OF THE DAY: HI VEER!🔴
+🔴ANOUNCEMENT OF THE DAY: Better than a teacher!🔴
 _____________________________________________________________________________________________________________________________
 🔴Please Like This Repo; I would really appreciate the gesture, and it would motivate me to work harder on other projects.🔴
 _____________________________________________________________________________________________________________________________
