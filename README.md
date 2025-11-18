@@ -1,5 +1,5 @@
 # GoggleMathGoogle
-🔴 $${\color{blue}A \space \color{darkred}CHATPL4Y \space \color{purple}product}$$ - made by $${\color{darkred}ɌɨᵽŧɨđɇMȻ}$$ 🔴
+🔴 $${\color{blue}A \space \color{darkred}CHATPL4Y \space \color{purple}product}$$ - made by ɌɨᵽŧɨđɇMȻ 🔴
 _____________________________________________________________________________________________________________________________
 🔴ANOUNCEMENT OF THE DAY: Better than a teacher!🔴
 _____________________________________________________________________________________________________________________________
