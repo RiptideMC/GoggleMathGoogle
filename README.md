@@ -1,5 +1,5 @@
 # GoggleMathGoogle
-🔴 $${\color{blue}A \space \color{red}CHATPL4Y \space \color{yellow}product}$$ - made by D̷̷N 🔴
+🔴 $${\color{blue}A \space \color{red}CHATPL4Y \space \color{purple}product}$$ - made by D̷̷N 🔴
 _____________________________________________________________________________________________________________________________
 🔴ANOUNCEMENT OF THE DAY: HI VEER!🔴
 _____________________________________________________________________________________________________________________________
