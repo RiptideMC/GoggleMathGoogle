@@ -1,11 +1,10 @@
 # GoggleMathGoogle
 🔴D̷̷N🔴
 _____________________________________________________________________________________________________________________________
-🔴ANOUNCEMENT OF THE DAY:
-HI VEER!🔴
+🔴ANOUNCEMENT OF THE DAY: HI VEER!🔴
 _____________________________________________________________________________________________________________________________
-🔴GoggleMathGoogle🔴
-_____________________________________________________________________________________________________________________________
+🔴Please Star This Repo! I would really appreciate the gesture, and it would motivate me to work harder on my other projects. TYSM!🔴
+_____________________________________________________________________________________________________________________________________
 THE LINKS BELOW ARE ALL FOR ENVIS1ON EXPLOIT DEVELOPED BY CHATPL4Y STUDIOS AND RIPTIDEMC.
 _____________________________________________________________________________________________________________________________
 Try using https://poki.com, https://crazygames.gg, and https://silvergames.com for games.
