@@ -1,7 +1,7 @@
 # GoggleMathGoogle
 🔴 $${\color{blue}A \space \color{darkred}CHATPL4Y \space \color{purple}product}$$ - made by ɌɨᵽŧɨđɇMȻ 🔴 ENJOY!
 _____________________________________________________________________________________________________________________________
-🔴ANOUNCEMENT OF THE DAY: "Algebra is useful, TRUST!"🔴
+🔴ANOUNCEMENT OF THE DAY: "Hi Sriyans!"🔴
 _____________________________________________________________________________________________________________________________
 🔴Please Like This Repo; I would really appreciate the gesture, and it would motivate me to work harder on other projects.🔴
 _____________________________________________________________________________________________________________________________
