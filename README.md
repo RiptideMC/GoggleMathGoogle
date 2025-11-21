@@ -1,6 +1,7 @@
 # GoggleMathGoogle
-_____________________________
+______________________________
 🔴I MADE THIS THING, PEOPLE!🔴
+______________________________
 🔴 $${\color{blue}A \space \color{darkred}CHATPL4Y \space \color{purple}product}$$ - made by ɌɨᵽŧɨđɇMȻ 🔴 ENJOY!
 _____________________________________________________________________________________________________________________________
 🔴ANOUNCEMENT OF THE DAY: At least there's one thing I'm good at...🔴
