@@ -19,6 +19,5 @@ ________________________________________________________________________________
 This one runs Windows 10: "https://www.onworks.net/runos/create-os.html?os=win10_emulator&home=init". Please click the link and then follow all the prompts. This link can do the same things as the other link that leads to Linux in-browser.
 _______________________________________________________________________________
 For Eaglercraft hosting: try https://eagler.host.
-PRIVATE : https://topeaglerservers.com/verify-email/0a06c71280818eba4e5d8a18b8445b272dc973d0c3166027d4b96caeb9a38090
 
 
