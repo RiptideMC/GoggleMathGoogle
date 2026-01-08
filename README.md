@@ -4,7 +4,7 @@ ______________________________
 ______________________________
 🔴 $${\color{blue}A \space \color{darkred}CHATPL4Y \space \color{purple}product}$$ - made by ɌɨᵽŧɨđɇMȻ 🔴 ENJOY!
 _____________________________________________________________________________________________________________________________
-🔴ANOUNCEMENT OF THE DAY: BRUH OVER HALF THE SCHOOL USES THIS.🔴
+🔴ANOUNCEMENT OF THE DAY: CMS Basketball🔴
 _____________________________________________________________________________________________________________________________
 🔴Please Like This Repo; I would really appreciate the gesture, and it would motivate me to work harder on other projects.🔴
 _____________________________________________________________________________________________________________________________
