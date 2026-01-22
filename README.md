@@ -4,7 +4,7 @@ ______________________________
 ______________________________
 🔴 $${\color{blue}A \space \color{darkred}CHATPL4Y \space \color{purple}product}$$ - made by ɌɨᵽŧɨđɇMȻ 🔴 ENJOY!
 _____________________________________________________________________________________________________________________________
-🔴ANOUNCEMENT OF THE DAY: TYLER, Colton Cross, and Grayson Feigel. (Requests)🔴
+🔴ANOUNCEMENT/REQUESTS: TYLER, Colton Cross, and Grayson Feigel. 🔴
 _____________________________________________________________________________________________________________________________
 🔴Please Like This Repo; I would really appreciate the gesture, and it would motivate me to work harder on other projects.🔴
 _____________________________________________________________________________________________________________________________
