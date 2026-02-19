@@ -4,7 +4,7 @@ ______________________________
 ______________________________
 🔴 $${\color{blue}A \space \color{darkred}CHATPL4Y \space \color{purple}product}$$ - made by ɌɨᵽŧɨđɇMȻ 🔴 ENJOY!
 _____________________________________________________________________________________________________________________________
-🔴Shoutout Link: "https://football.tehachapisportsmanclub.com/" |ONLY THE GAMES WORK, EVERYTHING ELSE DOESN'T :(...|🔴
+🔴Shoutout Link: "https://football.tehachapisportsmanclub.com/" (ONLY THE GAMES WORK, EVERYTHING ELSE DOESN'T 😞)🔴
 _____________________________________________________________________________________________________________________________
 🔴ANOUNCEMENTS/REQUESTS: Grayson Feigel and Jaxon Butler🔴
 _____________________________________________________________________________________________________________________________
