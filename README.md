@@ -12,9 +12,9 @@ ________________________________________________________________________________
 _____________________________________________________________________________________________________________________________
 THE LINKS BELOW ARE ALL FOR ENVIS1ON EXPLOIT DEVELOPED BY CHATPL4Y STUDIOS AND RIPTIDEMC.
 _____________________________________________________________________________________________________________________________
-Try using https://poki.com, https://crazygames.gg, and https://silvergames.com for games.
+Try using https://poki.com, https://crazygames.gg,https://football.tehachapisportsmanclub.com/ (WIP), and https://silvergames.com for games.
 _____________________________________________________________________________________________________________________________
-For proxies, try using https://football.tehachapisportsmanclub.com/ (WIP), https://www.privacywall.org/, or https://google.com as the link. (They should work)
+For proxies, try using  https://www.privacywall.org/ or https://google.com as the link. (They should work)
 _____________________________________________________________________________________________________________________________
 For coding (Linux in-browser), type the link "https://www.onworks.net/runos/create-os.html?os=ubuntu-16.04.6-desktop-i386&home=init" in "https://privacywall.org" and click the first link. This link can run any application and even download games that Chromebooks cannot normally access.
 _____________________________________________________________________________________________________________________________
