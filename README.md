@@ -12,7 +12,7 @@ ________________________________________________________________________________
 _____________________________________________________________________________________________________________________________
 THE LINKS BELOW ARE ALL FOR ENVIS1ON EXPLOIT DEVELOPED BY CHATPL4Y STUDIOS AND RIPTIDEMC.
 _____________________________________________________________________________________________________________________________
-Try using https://poki.com, https://crazygames.gg,https://football.tehachapisportsmanclub.com/ (WIP), and https://silvergames.com for games.
+Try using https://poki.com, https://crazygames.gg, https://football.tehachapisportsmanclub.com/ (WIP), and https://silvergames.com for games.
 _____________________________________________________________________________________________________________________________
 For proxies, try using  https://www.privacywall.org/ or https://google.com as the link. (They should work)
 _____________________________________________________________________________________________________________________________
