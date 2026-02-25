@@ -6,7 +6,7 @@ ______________________________
 _____________________________________________________________________________________________________________________________
 🔴Shoutout Link: "https://football.tehachapisportsmanclub.com/" (ONLY THE GAMES WORK, EVERYTHING ELSE DOESN'T 😞)🔴
 _____________________________________________________________________________________________________________________________
-🔴ANOUNCEMENTS/REQUESTS: Grayson Feigel and Jaxon Butler🔴
+🔴ANOUNCEMENTS/REQUESTS: Cooper Ferarro🔴
 _____________________________________________________________________________________________________________________________
 🔴Please Like This Repo; I would really appreciate the gesture, and it would motivate me to work harder on other projects.🔴
 _____________________________________________________________________________________________________________________________
